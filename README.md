@@ -1,0 +1,1 @@
+# Pemodelan-Gerak-Jatuh-Bebas-GJB-dan-Gerak-Lurus-Berubah-Beraturan-GLBB-
